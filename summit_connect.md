@@ -1,5 +1,4 @@
 Red Hat Summit Connect Madrid 2024
-Here is the translation of your text into English:
 
 "Technology is constantly evolving, and open source is the driving force behind this innovation.
 Additionally, we are witnessing the new era of artificial intelligence, generative AI, which offers
