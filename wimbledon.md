@@ -11,6 +11,6 @@ England Lawn Tennis and Croquet Club in Wimbledon, London, England.
 It was the 137th edition of the Wimbledon Championships and the third Grand Slam event of 2024.
 The gentlemen's singles title was won by defending champion Carlos Alcaraz, who defeated
 Novak Djokovic in a rematch of the previous year's final to lift his fourth Grand Slam title.
-Carlos Alcarez beat Novak Djokovic with a score of 6-2, 6-2, 7-6. Carlos Alcarez is from Spain
+Carlos Alcaraz beat Novak Djokovic with a score of 6-2, 6-2, 7-6. Carlos Alcaraz is from Spain
 and Novak Djokovic is from Serbia.
 The 2024 Wimbledon final was held on Sunday, July 14, 2024.
